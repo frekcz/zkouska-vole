@@ -1,6 +1,6 @@
 # My Log
 vbbbbbbb
-- March 17: first commit
+- March 17: first commitruruz
 trygfff
 kkk
 hhvbvbmnvbfhjfg
