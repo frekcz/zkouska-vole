@@ -1,6 +1,6 @@
 # My Log
 vbbbbbbb
-- March 17: first commitruruz
+- Mardfghch 17: first commitruruz
 trygfff
 kkkvšč
 hhvbvbmnvbfhjfgščř
