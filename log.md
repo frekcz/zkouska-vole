@@ -1,0 +1,3 @@
+# My Log
+
+- March 17: first commit
