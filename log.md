@@ -1,7 +1,7 @@
 # My Log
 vbbbbbbb
 - Mardfghch 17: first commitruruz
-trygfff
+trygfffřžýřž
 kkkvšč
 hhvbvbmnvbfhjfgščř
 hdfgsfdrtrtzr
