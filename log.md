@@ -3,7 +3,7 @@ vbbbbbbb
 - March 17: first commitruruz
 trygfff
 kkkvšč
-hhvbvbmnvbfhjfg
+hhvbvbmnvbfhjfgščř
 hdfgsfdrt
 ffffffffgjhščřžert
 hfghfhetzufgj
